@@ -1,5 +1,3 @@
-# nyxitoons.github.io
-Samantha S. Cedilla
 # Our Lady of Peñafrancia Church
 ![Facade](https://1.bp.blogspot.com/-
 IdsvMzVwpRI/T84TdDzLGGI/AAAAAAAADqc/QOD44MxBGh8/s1600/IMG_7888.JPG "Church Facade")
