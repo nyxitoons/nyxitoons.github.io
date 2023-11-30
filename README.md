@@ -24,4 +24,4 @@ procession of Our Lady of Peñafrancia begins, opening the Peñafrancia Festival
 
 
 
-![pusi cat](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.wfla.com%2Fbloom-tampa-bay%2F10-surprising-benefits-of-having-a-cat-in-your-life%2F&psig=AOvVaw1kbNHgHyaeopu_IO0_msNX&ust=1701398499705000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCNjggrPc6oIDFQAAAAAdAAAAABAD)
+![pusi cat](https://www.purina.co.uk/sites/default/files/2023-03/Hero%20Pedigree%20Cats.jpg)
