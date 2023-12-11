@@ -3,12 +3,21 @@
 >by Samantha S. Cedilla 9-Bobola
 
 (intro)
-
+>where
+>what
+>>when
 
 Picture
+>description of image
 
+(story behind it)
 
-Int
+(topic 2)
+Picture
+
+>description of image
+
+(story behind it)
 
 
 
