@@ -5,7 +5,7 @@
 (intro)
 >where
 >what
->>when
+>when
 
 Picture
 >description of image
